@@ -6,7 +6,7 @@ I have three siblings, two brothers and one sister.
 
 I have three dogs and two cats...ask me about them.
 
-My pronouns are she/her/hers.
+I play rugby.
 
 
 
